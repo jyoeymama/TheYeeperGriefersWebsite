@@ -7,5 +7,6 @@ Our current operations:
 3. Operation No Rare Items. The goal is to spread rare items so much that they are not rare anymore.\
 4. Operation Scare. This is to scare people into thinking the end of Yeeps is near.
 5. Operation Propaganda. To recruit new members and spread the word that The Yeeper Greifers are ON TOP.
+6. Operation Exploit. This is to exploit the game and create a powerful hack client for The Yeeper Griefers. 
 
 I would also like to thank all of our members and supporters. Thank you all!
